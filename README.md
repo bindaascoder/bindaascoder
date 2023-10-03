@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **tamalanwaronline@gmail.com**
 
-- ⚡ Fun fact **I love playing video game.**
+- ⚡ Fun fact **I love playing video games, and watching movies.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
